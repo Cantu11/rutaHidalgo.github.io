@@ -1,1 +1,0 @@
-# rutaHidalgo.github.io
